@@ -1,9 +1,7 @@
-# skins
+**ALL SKINS ARE SORTED BY PLAYER NAME** ⬅️ *Keep in mind that* CTRL+F <br>
+If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFDT
 <br>
- what i use usually
- lmk if smth is broken
- <br>
- <br>
- ![1](https://github.com/InfiTrail/skins/assets/137624518/2931b83e-141e-458d-b29e-492a0eebda52)
-
- <br>
+<br>
+# [221 (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
+![](https://i.imgur.com/Gpu8gGz.png)
+<br>
