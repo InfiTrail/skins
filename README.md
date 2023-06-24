@@ -1,5 +1,5 @@
-**ALL SKINS ARE SORTED BY PLAYER NAME** ⬅️ *Keep in mind that* CTRL+F <br>
-If something is missing/broke please PM me on Discord: https://discord.gg/kcCdFDT
+these are all skins that i use <br>
+if smth is broken lmk
 <br>
 <br>
 # [221 (Rafis)](https://gerwi.s-ul.eu/1QpRCN9P)
