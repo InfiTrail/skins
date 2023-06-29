@@ -7,25 +7,25 @@ if smth is broken lmk
 <br>
 <br>
 # [Komori - PeguLian II (PwV) lite](https://infitrail.s-ul.eu/uy4DyoNl)
-![](https://github.com/InfiTrail/skins/assets/137624518/b5e11d25-53a5-4f05-91a5-f3575e48b37e)
+![](https://github.com/InfiTrail/skins/assets/137624518/b79a50f2-ecfe-4a2b-9303-cd1ce18d5977)
 <br>
 <br>
 # [「-InfiTrail-」](https://infitrail.s-ul.eu/pnwfVEdv)
-![](https://github.com/InfiTrail/skins/assets/137624518/9930fcbd-b214-4132-8a5b-bc63ea807d62)
+![](https://github.com/InfiTrail/skins/assets/137624518/07faef1f-be6f-46ec-a6d6-f254b3352e39)
 <br>
 <br>
 # [「-Fun F4ct-」Remade](https://infitrail.s-ul.eu/smMHCaCZ)
-![](https://github.com/InfiTrail/skins/assets/137624518/a80a0bad-74f3-47a0-beba-2707a0591b18)
+![](https://github.com/InfiTrail/skins/assets/137624518/3464bf7e-ddef-4f0d-be90-d28a42f2128c)
 <br>
 <br>
 # [InfiTrail coomer](https://infitrail.s-ul.eu/SEuOBsao)
-![](https://github.com/InfiTrail/skins/assets/137624518/9bec62ba-86c5-43fb-b992-ae34d0baf563)
+![](https://github.com/InfiTrail/skins/assets/137624518/6d2acad8-64dd-4c4d-bfc5-6529ea2e50a2)
 <br>
 <br>
 # [[BY] Shiroko Swimsuit NM](https://infitrail.s-ul.eu/UuA0h26H)
-![](https://github.com/InfiTrail/skins/assets/137624518/65b5575d-87e2-4953-af2e-c4958c1bdf4a)
+![](https://github.com/InfiTrail/skins/assets/137624518/3c0ecf7b-91a8-473a-81c7-39a107a162c9)
 <br>
 <br>
 # [Breevm](https://infitrail.s-ul.eu/gtc5GMMT)
-![](https://github.com/InfiTrail/skins/assets/137624518/2aa8145d-3323-4d57-8623-d83f7945047b)
+![](https://github.com/InfiTrail/skins/assets/137624518/733a5197-e82b-466d-9a8b-c27f8c74fd91)
 <br>
