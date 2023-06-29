@@ -13,3 +13,7 @@ if smth is broken lmk
 # [「-InfiTrail-」](https://infitrail.s-ul.eu/pnwfVEdv)
 ![](https://github.com/InfiTrail/skins/assets/137624518/9930fcbd-b214-4132-8a5b-bc63ea807d62)
 <br>
+<br>
+# [「-Fun F4ct-」Remade](https://infitrail.s-ul.eu/smMHCaCZ)
+![](https://github.com/InfiTrail/skins/assets/137624518/a80a0bad-74f3-47a0-beba-2707a0591b18)
+<br>
