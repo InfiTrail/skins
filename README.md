@@ -3,7 +3,7 @@ if smth is broken lmk
 <br>
 <br>
 # [[Hololive EN] Ceres Fauna セレス・ファウナ)](https://infitrail.s-ul.eu/sXzZwNIK)
-![](https://github.com/InfiTrail/skins/assets/137624518/974d2d6b-bc8c-4a91-a164-b29b8ecb96d5)
+![](https://github.com/InfiTrail/skins/assets/137624518/d92984cb-5186-4e0f-bd49-86490a2abd4d)
 <br>
 <br>
 # [Komori - PeguLian II (PwV) lite](https://infitrail.s-ul.eu/uy4DyoNl)
