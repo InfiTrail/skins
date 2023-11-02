@@ -12,3 +12,7 @@ if smth is broken lmk
 # [Komori - PeguLian II (PwV) lite](https://infitrail.s-ul.eu/uy4DyoNl)
 ![](https://github.com/InfiTrail/skins/assets/137624518/b79a50f2-ecfe-4a2b-9303-cd1ce18d5977)
 <br>
+<br>
+# [Ryu edit](https://infitrail.s-ul.eu/HBxO6icR)
+![](https://github.com/InfiTrail/skins/assets/137624518/442c6f6d-a063-4dfb-82a1-86bb25ae5206)
+<br>
