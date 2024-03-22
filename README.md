@@ -2,7 +2,7 @@ these are all skins that i use <br>
 if smth is broken lmk
 <br>
 # [sadness within (fixed)](https://mega.nz/file/8yxBgBib#Idj2vcUqzBaxUnjeO6fhIzIOwRCgUhA6oQUUlcpvBQg)
-![](https://github.com/InfiTrail/skins/assets/137624518/9e028ff3-6720-48d4-8c81-f4bb4142f3c6)\
+![](https://github.com/InfiTrail/skins/assets/137624518/17215dc4-b316-4dfe-a734-1d79b254f7b9)
 <br>
 <br>
 # [[Hololive EN] Ceres Fauna セレス・ファウナ)](https://infitrail.s-ul.eu/sXzZwNIK)
