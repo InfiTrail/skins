@@ -19,5 +19,5 @@ i tend to change the skin elements from time to time
 <br>
 <br>
 # [teehee (mania)](https://infitrail.s-ul.eu/qsJQ5O0R)
-![](https://github.com/InfiTrail/skins/assets/137624518/703b04d0-dcf6-4b81-9d5b-fb12da7bbb49)
+![](https://github.com/InfiTrail/skins/assets/137624518/3f98ced0-fd70-4f3c-a6d8-810afd4d9528)
 <br>
