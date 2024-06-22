@@ -20,4 +20,5 @@ i tend to change the skin elements from time to time
 <br>
 # [teehee (mania)](https://infitrail.s-ul.eu/4PJtXzBh)
 ![](https://github.com/InfiTrail/skins/assets/137624518/3f98ced0-fd70-4f3c-a6d8-810afd4d9528)
+should be compatible if you try to merge skins, but you'll have to put in the skin.ini file too
 <br>
