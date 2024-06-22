@@ -18,6 +18,6 @@ i tend to change the skin elements from time to time
 ![](https://github.com/InfiTrail/skins/assets/137624518/442c6f6d-a063-4dfb-82a1-86bb25ae5206)
 <br>
 <br>
-# [teehee (mania)](https://infitrail.s-ul.eu/qsJQ5O0R)
+# [teehee (mania)](https://infitrail.s-ul.eu/4PJtXzBh)
 ![](https://github.com/InfiTrail/skins/assets/137624518/3f98ced0-fd70-4f3c-a6d8-810afd4d9528)
 <br>
