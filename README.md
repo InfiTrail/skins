@@ -18,7 +18,7 @@ i tend to change the skin elements from time to time
 ![](https://github.com/InfiTrail/skins/assets/137624518/442c6f6d-a063-4dfb-82a1-86bb25ae5206)
 <br>
 <br>
-# [teehee (mania)](https://infitrail.s-ul.eu/4PJtXzBh)
-![](https://github.com/InfiTrail/skins/assets/137624518/3f98ced0-fd70-4f3c-a6d8-810afd4d9528)
-should be compatible if you try to merge skins in bulk for example combining a osu!standard skin with this o!mania skin but you'll have to put in the skin.ini file too
+# [teehee (mania)](https://infitrail.s-ul.eu/mW48K95r)
+!![](https://github.com/InfiTrail/skins/assets/137624518/1a6f6bda-b45f-4734-bc14-47d0dc06c24c)
+should be compatible if you try to merge skins in bulk for example combining a osu!standard skin with this osu!mania skin but you'll have to put in the skin.ini file too
 <br>
