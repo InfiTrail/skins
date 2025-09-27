@@ -23,6 +23,6 @@ i tend to change the skin elements from time to time
 should be compatible if you try to merge skins in bulk for example combining a osu!standard skin with this osu!mania skin but you'll have to put in the skin.ini file too
 <br>
 <br>
-# [teehee v2 (mania)](https://infitrail.s-ul.eu/njXr3tf0)
-![](https://github.com/user-attachments/assets/525246fa-fb91-44b2-803c-6c76768e69b0)
+# [teehee v2 (mania)](https://infitrail.s-ul.eu/LZzYfPxm)
+![](https://github.com/user-attachments/assets/deac53e9-ede0-4574-85ca-a2002a143cb2)
 <br>
